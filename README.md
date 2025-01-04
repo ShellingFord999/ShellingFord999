@@ -1,4 +1,4 @@
-## Hi there 👋
+## 負ける……負けず嫌い！！
 
 <!--
 **ShellingFord999/ShellingFord999** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
